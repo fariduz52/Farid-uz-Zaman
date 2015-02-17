@@ -1,4 +1,4 @@
 Farid-uz-Zaman
 ==============
 
-Farid Zaman tech world- working as web designer and developer
+Farid Zaman working as web designer and developer
